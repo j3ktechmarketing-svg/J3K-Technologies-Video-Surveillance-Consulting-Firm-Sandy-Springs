@@ -74,8 +74,6 @@ This approach ensures that surveillance investments continue to deliver value as
 
 J3K Technologies approaches video surveillance consulting as a partnership, not a one-time service. We collaborate closely with stakeholders to understand how spaces are used, where risks exist, and how systems should support long-term objectives. Every recommendation is grounded in practical experience and operational relevance.
 
-For additional industry perspectives and technical planning insights, organizations can explore resources available through < > and < >.
-
 ---
 
 
